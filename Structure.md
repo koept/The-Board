@@ -1,0 +1,4 @@
+* Founders
+* Directors
+* Artists
+* Patrons
